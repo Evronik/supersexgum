@@ -1,5 +1,5 @@
 # HTML лендинг «Возбуждающая жвачка Sex Gum»
-## _Скоптирован мной из интернета и переделан под запрос заказчика_  
+## _Скопирован мной из интернета и переделан под запрос заказчика_  
 
 [![N|Solid](https://evronik.github.io/supersexgum/supersexgum.jpg)](https://evronik.github.io/supersexgum/)
 
